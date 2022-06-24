@@ -1,0 +1,1 @@
+Hello! My name is Viverjita. I recently graduated with a Master's degree focusing on circular economy and sustainability. A couple of years ago, I found my calling in solving the global waste crises. Now I'm building my career to help organizations, businesseses and local organizations meet their vision of a world without waste. 

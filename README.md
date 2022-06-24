@@ -1,0 +1,1 @@
+I'm creating my website on Github pages. This is a repository where I exhibit what I am knowledgeable about, projects I am working, and anything else I learn for my vibrant career that I'm building. 
